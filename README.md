@@ -28,4 +28,4 @@ To get instant support, contact me on [@crypto_scem](https://t.me/crypto_scem)
 
 - TELEGRAM: [@crypto_scem](https://t.me/crypto_scem)
 - TELEGRAM GROUP: https://t.me/cryptoscemm
-- STORE: https://cryptoscem-services.sellix.io
+- STORE: https://nftstealer.sellix.io
